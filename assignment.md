@@ -8,6 +8,7 @@ People I want a recommendation from:
 Ryan Wemmer 
 Alex Muir 
 Rachelle Axline
+Capstone Team
 
 List of people I've added on LinkedIn:
 Alex Muir
@@ -16,7 +17,7 @@ Will Allen
 Julian Holman
 Harrison Wheeler
 
-People I plan to connect to:
+Pending Connections:
 Neil Whited - In Time Tec 
 Demi Dion - Allata
 Thomas Redal - Disys
